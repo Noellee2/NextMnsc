@@ -3,7 +3,8 @@
 ## Introduction
 
 [**Belgium Mobile Phone Accessories Market**](https://www.nextmsc.com/report/belgium-mobile-phone-accessories-market) Sustainability is no longer a niche—it’s mainstream. Belgian consumers, known for their progressive environmental mindset, are applying the same standards to tech accessories as they do to fashion, food, and packaging.
-What’s Driving the Green Revolution?
+
+## What’s Driving the Green Revolution?
 
 ## 1. Environmental Awareness
 
